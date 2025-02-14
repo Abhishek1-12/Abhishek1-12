@@ -25,6 +25,8 @@
 🔹 Exploring **smart automation and IoT-integrated systems**.
 
 ## 📫 Connect with Me
+- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/abhishek-roy-88a8a7350?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
+- Email: [Your Email](Roy883642@gmail.com)
 
 
 ---
